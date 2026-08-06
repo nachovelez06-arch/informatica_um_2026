@@ -1,1 +1,0 @@
-# informatica_um_2026
